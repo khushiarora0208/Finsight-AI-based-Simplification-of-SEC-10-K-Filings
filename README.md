@@ -1,0 +1,1 @@
+# Finsight-AI-based-Simplification-of-SEC-10-K-Filings
